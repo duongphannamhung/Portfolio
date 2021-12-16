@@ -1,4 +1,4 @@
-### Hi everyone, I'm Dương Phan Nam Hưng. 😊🤝 - a data-lover. When decisions could be made more acurate, reports could be delivered faster, you will see my happiness.
+### Hi everyone, I'm Dương Phan Nam Hưng. 😊🤝 - a data-lover. When decisions could be made more acurate, reports could be delivered automated and faster, you will see my happiness.
 📺 This is my portfolio, where my projects present (with team and some are individual).
 <br />
 <br /> 
